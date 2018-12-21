@@ -13,86 +13,23 @@ As an experienced and confident receptionist working in one of Glasgow's busiest
 
 - front of house / reception service
 - inbound & outbound calls
-- data protection
-- record data / performance
-- booking events
 - diary management
-- handling staff and customer enquires
-- log and store data
+- booking events
+- log and store personal data
+- data protection
+- setting up events / meetings
+- handling staff / customer enquires
 - Microsoft Office
+- confident comunicator
+- strong organisational skills
 - positive attitude
-- strong organisation
+
+
+
+
+
 
 ----
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 
 
 
